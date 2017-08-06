@@ -1,2 +1,2 @@
 # hello-world
-小白开始之路
+when i know how much i am hurting you,i know i have to make you proud of me
